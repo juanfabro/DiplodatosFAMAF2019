@@ -1,4 +1,4 @@
-Practico I
+Practico II - Curacion
 
 Equipo:
 
